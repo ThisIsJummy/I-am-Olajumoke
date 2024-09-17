@@ -13,4 +13,5 @@ Here are some ideas to get you started:
 - 📫 How to reach me: j.adenugba5@gmail.com
 - 😄 Pronouns: She/her
 - ⚡ Fun fact: I love to explore new ideas
---> Please, don't hesidtate to communicate with me when you come across something that can be heloful
+--> Please, don't hesidtate to communicate with me when you come across something that can be helpful
+--> DO not also refrain from seeking any help relationg to what you have seen me become great at.
